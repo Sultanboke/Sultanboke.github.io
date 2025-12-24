@@ -1,6 +1,4 @@
-# Hi Pascoll
+**Join Grup Telegram sekarang gratis nonton Sepuanya**
 
-## Mau Kemana ?. :)
-
-- [GRUP Kimcilonly NO VPN](https://t.me/+eJ1uADPjbNEwYjE1)
+- [GRUP Kimcilonly NO VPN](https://t.me/+eJluADPJbNEwyjE1)
 ----------------------------------------------------------------------------------------------------
