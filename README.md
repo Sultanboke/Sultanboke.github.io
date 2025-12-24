@@ -1,4 +1,4 @@
-**Join Grup Telegram sekarang gratis nonton Sepuanya**
+**NONTON DISINI GRATIS👇👇**
 
-- [GRUP Kimcilonly NO VPN](https://t.me/+eJ1uADPjbNEwYjE1)
+- [NIKMATI SEPUANYA NO VPN](https://t.me/+eJ1uADPjbNEwYjE1)
 ----------------------------------------------------------------------------------------------------
